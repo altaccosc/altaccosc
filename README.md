@@ -50,5 +50,6 @@ I'm also a scanlator specializing in redrawing, but I can also typeset and proof
   > Tasks: RD
 - 2022-02-27 - 2022-04-22 (Release: 2022-05-25): [Fall for me and dye me red (Nakano Mayaka oneshot)](https://dynasty-scans.com/chapters/fall_for_me_and_dye_me_red)
   > Tasks: RD
-- 2022-04-30 - 2022-07-18 (Release: TBA) 
-  > Tasks: RD
+- 2022-04-30 - 2022-07-18 (Release: 2022-09-03): [Bean-starch vermicelli salad with bamboo shoots and scallops with a hint of yuzu citrus pepper (Yukiko oneshot)](https://dynasty-scans.com/chapters/bean_starch_vermicelli_salad_with_bamboo_shoots_and_scallops_with_a_hint_of_yuzu_citrus_pepper)
+  > Tasks: RD \
+  > Comments: This was the **single most difficult manga** I have ever redrawn. This was insane!
